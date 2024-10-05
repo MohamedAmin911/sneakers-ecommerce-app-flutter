@@ -1,6 +1,6 @@
 # ecommerce_app
 
-![1](https://ibb.co/5k1tXrx)
+![1](https://ibb.co/ZhhWk9j)
 ![2](https://ibb.co/CmfJ6sj)
 ![3](https://ibb.co/6nbtbY3)
 ![4](https://ibb.co/PwvvnTg)
